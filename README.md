@@ -1,8 +1,9 @@
-## Hi I'm yumal-nykci
+## 👀Hi I'm yumal-nykci.
 
-I'm bugineer programer.
+I'm bugineer programer.💻
 
-I usually speak Japanese.
+I usually speak Japanese.🇯🇵
 
-I'm little good at C++,C#,javascript.
-please call me Nykci
+I'm little good at C++,C#,javascript.📎
+
+please call me Nykci!!
