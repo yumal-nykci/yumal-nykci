@@ -4,6 +4,8 @@ I'm bugineer programer.💻
 
 I usually speak Japanese.🇯🇵
 
-I'm little good at C++,C#,javascript.📎
+I'm little good at C++,C#,Javascript.📎
 
-please call me Nykci!!
+Please call me Nykci!!
+
+btw I am very vrazy .but I appreciate your help ☆
