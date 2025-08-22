@@ -8,4 +8,4 @@ I'm little good at C++,C#,Javascript.📎
 
 Please call me Nykci!!
 
-btw I am very vrazy .but I appreciate your help ☆
+btw I am very crazy .but I appreciate your help ☆
