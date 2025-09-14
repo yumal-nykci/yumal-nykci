@@ -1,6 +1,6 @@
 ## 👀Hi I'm yumal-nykci.
 
-I'm bigineer programer.💻
+I'm bugineer programer.💻
 
 I usually speak Japanese.🇯🇵
 
